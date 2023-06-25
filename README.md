@@ -1,5 +1,7 @@
 # MS-IN-USA
 
+![](MS US.drawio.svg.png)
+ 
 Documents required: <br>
 Passport <br>
 Transcripts <br>
