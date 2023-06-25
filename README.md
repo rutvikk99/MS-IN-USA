@@ -62,7 +62,7 @@ Loan Sanction letter or Savings in Bank Account <br>
 
 FOR DS160 <br>
 [Official Website] (https://ceac.state.gov/genniv/) <br>
-[DS160](https://www.youtube.com/watch?v=IxTxJ8SaJYI) <br>
+[How to Fill DS160 Form](https://www.youtube.com/watch?v=IxTxJ8SaJYI) <br>
 
 For Sevis - This Number will be written on your i20 form <br>
 [Link to pay sevis  fees] - (https://www.fmjfee.com/i901fee/index.html) <br>
