@@ -1,7 +1,20 @@
 # MS-IN-USA
 
+Documents required: <br>
+Passport <br>
+Transcripts <br>
+Degree/Diploma <br>
+10th mark sheet <br>
+12th mark sheet <br>
+Two or three letters of recommendation <br>
+Statement of Purpose <br>
+TOEFL/IELTS <br>
+GRE <br>
+Financial Proof <br>
 
-These are the youtube channels, websites, and blogs  which I have used for my master in USA application process :-
+
+
+These are the youtube channels, websites, and blogs  which I have used for my master in USA application process :- <br>
 
 [parth](https://www.youtube.com/@ParthVijayvergiya) <br>
 [YashMittra](https://www.youtube.com/@YashMittraYMGrad) <br>
