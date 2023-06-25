@@ -31,9 +31,9 @@ FOR SOP : <br>
 
 For LOR <br>
 [LOR](https://www.youtube.com/watch?v=nRk_7maHnuU) <br>
-
-For Resume 
-[Resume](https://leapscholar.com/blog/resume-format-for-usa-tips-examples/)
+ 
+For Resume  <br>
+[LeapScholarBlog](https://leapscholar.com/blog/resume-format-for-usa-tips-examples/)
 
 For Loan <br>
 [WEMAKESCHOLARS](https://www.wemakescholars.com/education-loan) <br>
