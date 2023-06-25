@@ -17,7 +17,7 @@ Application & websites to find information: <br>
 University Official  Websites <br>
 [Official USA Gov Website](https://studyinthestates.dhs.gov/students) <br>
 
-FOR IELTS : <br>
+FOR IELTS: <br>
 [E2IELTS](https://www.youtube.com/@E2IELTS) <br>
 [leapscholar](https://ielts.leapscholar.com/) <br>
 [Free Test Practice](https://ieltsonlinetests.com/) <br>
@@ -31,6 +31,9 @@ FOR SOP : <br>
 
 For LOR <br>
 [LOR](https://www.youtube.com/watch?v=nRk_7maHnuU) <br>
+
+For Resume 
+[Resume](https://leapscholar.com/blog/resume-format-for-usa-tips-examples/)
 
 For Loan <br>
 [WEMAKESCHOLARS](https://www.wemakescholars.com/education-loan) <br>
