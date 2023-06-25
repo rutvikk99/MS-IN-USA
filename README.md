@@ -1,7 +1,7 @@
 # MS-IN-USA
 
-![](MS US.drawio.svg.png)
- 
+![MS US drawio](https://github.com/rutvikk99/MS-IN-USA/assets/43743673/30cfdbc0-3bb3-4cff-9e6a-3645b3dc06d3)
+
 Documents required: <br>
 Passport <br>
 Transcripts <br>
